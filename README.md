@@ -2,3 +2,9 @@
 
 It is a big achievement for me to make a repository in my creating world
 I am in case of my good work in a big hole like a hole.
+
+#Write some lines for myself
+
+I am very lonely person.
+No person don't / never join with me for talking.
+Therefore I am very boring person
