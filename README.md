@@ -13,3 +13,8 @@ Therefore I am very boring person
 
 It's our world we are living here
 We can't do anything for our country
+
+##We have to add a simple way to protect our own life
+
+I have to clean a practical way to conflict myself
+It's not mandatory to decide a way to which we talk to each other
